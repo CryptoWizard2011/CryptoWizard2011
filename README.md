@@ -1,4 +1,5 @@
-![](https://www.alienworldwars.com/images/1920x900.png)
+![](https://images.squarespace-cdn.com/content/v1/613ec19e63a055663f525433/f6b77f3c-0ee6-4650-8506-2bc1b66a659c/AWARS+v2+No+Eyes+BLUE+Fade.png?format=1500w)
+
 ![Profile views](https://gpvc.arturio.dev/ALIENWORLDWARS)
 ### Hi There 👋, <br> My Company Name is ALIENWORLDWARS
 **Founded by a team of successful tech entrepreneurs, crypto enthusiasts, business executives, and most importantly, game developers, AWARS is an interactive, AI driven cutting-edge game that allows users to earn NFTs and crypto, while accumulating Bitcoin and Ethereum just for playing and hodling. Powered by Niros, players are able to accumulate and trade real world assets while engaging in a play-to-earn blockchain enabled environment. Our team has worked on some of the top projects in the space including: Universal Studios, Angry Birds, Clash of Clans, Supercell, Rovio, and more.**
